@@ -40,4 +40,9 @@
 - When is your birthday?
 - My birthday is August twenty-fifth.
 - Make a funny face.
+- Change places with Isabel.
+- Wait until Sam returns.
+- I'm going to pay you twenty five cents now, and twenty five cents later.
+- I'm going to sell the strawberries to you for 50 cents.
+- You can't reach.
 - 
