@@ -1,11 +1,59 @@
 # Episode 1
+## "46 Linden Street"
 
-**Act 1**
+- In this episode, you will study...
 
-On a ferryboat in New York Harbor. We can see the Statue of Liberty. Richard Steward, 30, is taking pictures.
+## Vocabulary
+- photographer
+- boutique
+- exchange student
+- dessert
+- toy
+- pediatrician
 
-在纽约港的一艘渡轮上。我们可以看到自由女神像。 30岁的Richard Stewart， 他正在拍照。  
+## Grammar and Expressions
+- introducing yourself
+- responding to introductions
+- introducing others
+- asking for permisson
+- thanking
+- accepting thanks
+- the order of adjectives
 
-Richard: Excuse me. My name is Richard Steward. I'm photographer. May I take a picture of you and your little boy ?
+## Pronunciation
+- I've got to...
+- Let me...
+- hour
 
-Richard：不好意思打扰了。 我叫Richard Stewart。 我是一名摄影师。 请问， 我可以给你和你的孩子拍张照片吗？
+## U.S. LIFE
+- What is the population of the United States?
+- What is special about the subway system in New York City?
+
+## Your Turn
+- From which nations do immigrants come to your country?
+- How do most people travel to work in your city or town?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
