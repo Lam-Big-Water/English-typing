@@ -35,3 +35,9 @@
 - Give me that picture of your mon.
 - Take that picture of your aunt off the wall.
 - Anna, what time is it on this clock? It's four O seven.
+- I'm tearing the paper.
+- Is Teresa throwing a ball?
+- When is your birthday?
+- My birthday is August twenty-fifth.
+- Make a funny face.
+- 
